@@ -6,7 +6,7 @@
 
 # When 4k?
 
-## Next week
+## SPX nears entry, descent, and landing on the Red Planet, with touchdown scheduled for March 30, 2021!
 
 ---
 
