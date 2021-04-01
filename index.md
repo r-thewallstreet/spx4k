@@ -1,22 +1,12 @@
 # Is SPX at 4k yet?
 
-## No
+## Yes
 
 ---
 
 # When 4k?
 
-## Scheduled for March 31, 2021
+## SPX has successfully landed in 4k Crater on Mars following a 1000-points journey. Touchdown was confirmed on April 1, 2021.
 
----
 
-# Is this financial advice?
-
-## No
-
----
-
-# I have questions.
-
-## [Sure](https://old.reddit.com/r/thewallstreet/)
 
